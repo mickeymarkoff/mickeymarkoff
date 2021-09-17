@@ -34,4 +34,4 @@ Yahoo: https://yhoo.it/3En3wgi
 Reddit: https://www.reddit.com/user/mickeymarkoff/ 
 Sunbiz: https://bit.ly/3Amj9lU
 Spectator Mag: https://bit.ly/3hFwvlO 
-
+.
